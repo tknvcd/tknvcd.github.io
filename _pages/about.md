@@ -3,10 +3,12 @@ permalink: /
 title: "Words and Acts of Ron Johnson, WI Junior Senator"
 excerpt: "Overview"
 author_profile: false
-redirect_from: 
+redirect_from:
   - /about/
   - /about.html
 ---
+
+https://www.facebook.com/thomaskeen.nvcd/posts/568788330703623
 
 For more info
 ------
