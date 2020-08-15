@@ -9,5 +9,6 @@ redirect_from:
 ---
 ___
 [14 Aug 2020: Sen. Johnson's bogus probe aims to help Trump. He told us so himself](https://www.dailykos.com/stories/2020/8/14/1969289/-GOP-Sen-Ron-Johnson-gets-caught-admitting-his-bogus-investigation-will-boost-Trump-s-reelection)
+
 ___   
 [3 June 2020: RJ and Authoritarianism](https://www.facebook.com/thomaskeen.nvcd/posts/568788330703623)
