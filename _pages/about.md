@@ -8,7 +8,7 @@ redirect_from:
   - /about.html
 ---
 
-https://www.facebook.com/thomaskeen.nvcd/posts/568788330703623
+link:https://www.facebook.com/thomaskeen.nvcd/posts/568788330703623[RJ and Authoritarianism]
 
 For more info
 ------
