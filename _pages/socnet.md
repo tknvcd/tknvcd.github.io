@@ -1,3 +1,10 @@
+---
+permalink: /socnet/
+title: "Ron Johnson's network of connections"
+author_profile: true
+redirect_from:
+  - /network/
+  - /socnet.html
+---
 
-___
-Sorry, this page is still under development
+* This section still under development
