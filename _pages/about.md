@@ -12,6 +12,8 @@ ___
 
 [14 Aug 2020: Sen. Johnson's bogus probe aims to help Trump. He told us so himself](https://www.dailykos.com/stories/2020/8/14/1969289/-GOP-Sen-Ron-Johnson-gets-caught-admitting-his-bogus-investigation-will-boost-Trump-s-reelection)
 
+[11 Aug 2020: Ron Johnson's investigations of the Bidens has become a conduit of Russian misinformation](https://www.justsecurity.org/71947/how-sen-ron-johnsons-investigation-became-an-enabler-of-russian-disinformation-part-i/)
+
 [9 Aug 2020: New Congressional Integrity Report on Ron Johnson's Personal Corruption](http://www.milwaukeeindependent.com/syndicated/new-report-details-how-senator-ron-johnson-betrayed-wisconsin-to-make-millions-in-personal-profit/)
 
 [3 Jun 2020: RJ and Authoritarianism](https://www.facebook.com/thomaskeen.nvcd/posts/568788330703623)
