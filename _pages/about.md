@@ -8,6 +8,8 @@ redirect_from:
   - /about.html
 ---
 ___
+[15 Aug 2020: Ron Johnson is channelling Russian misinformation through his role as Chair of the US Senate Committee on Homeland Security and Governmental Affairs](https://twitter.com/SteveSchmidtSES/status/1294786356267417601?cxt=HHwWgoC8lZfVgPgjAAAA)
+
 [14 Aug 2020: Sen. Johnson's bogus probe aims to help Trump. He told us so himself](https://www.dailykos.com/stories/2020/8/14/1969289/-GOP-Sen-Ron-Johnson-gets-caught-admitting-his-bogus-investigation-will-boost-Trump-s-reelection)
 
 [9 Aug 2020: New Congressional Integrity Report on Ron Johnson's Personal Corruption](http://www.milwaukeeindependent.com/syndicated/new-report-details-how-senator-ron-johnson-betrayed-wisconsin-to-make-millions-in-personal-profit/)
