@@ -12,4 +12,6 @@ ___
 
 [9 Aug 2020: New Congressional Integrity Report on Ron Johnson's Personal Corruption](http://www.milwaukeeindependent.com/syndicated/new-report-details-how-senator-ron-johnson-betrayed-wisconsin-to-make-millions-in-personal-profit/)
 
-[3 June 2020: RJ and Authoritarianism](https://www.facebook.com/thomaskeen.nvcd/posts/568788330703623)
+[3 Jun 2020: RJ and Authoritarianism](https://www.facebook.com/thomaskeen.nvcd/posts/568788330703623)
+
+[20 Jan 2019: Ron Johnson vote clears way to lift sanctions on Oleg Deripaska](https://madison.com/wsj/news/local/govt-and-politics/roll-call-key-votes-from-the-wisconsin-congressional-delegation-this-week/article_0dedee09-59a1-59ce-9710-bc99e39594e3.html)
