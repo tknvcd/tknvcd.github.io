@@ -19,3 +19,5 @@ ___
 [3 Jun 2020: RJ and Authoritarianism](https://www.facebook.com/thomaskeen.nvcd/posts/568788330703623)
 
 [20 Jan 2019: Ron Johnson vote clears way to lift sanctions on Russian oligarch Oleg Deripaska](https://madison.com/wsj/news/local/govt-and-politics/roll-call-key-votes-from-the-wisconsin-congressional-delegation-this-week/article_0dedee09-59a1-59ce-9710-bc99e39594e3.html)
+
+[3 July 2018: Johnson one of eight Republican legislators spending the 4th of July in Moscow](https://www.washingtonpost.com/opinions/eight-republicans-spent-july-4-in-russia-where-are-the-fireworks/2018/07/06/beae30be-812e-11e8-b658-4f4d2a1aeef1_story.html)
