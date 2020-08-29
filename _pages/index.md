@@ -8,6 +8,8 @@ redirect_from:
   - /about.html
 ---
 ___
+[24 Aug 2020: Ronjo and Manafort: Scratch my back, I'll scratch yours: Ukrainegate 2.0](https://www.justsecurity.org/72148/manaforts-reward-sen-ron-johnson-and-the-ukraine-conspiracy-investigation-part-ii/)
+
 [22 Aug 2020: Per Ronjo, the idea that PM DeJoy is trashing the postal service six ways from Sunday is a "false political narrative" and a "conspiracy theory"](https://www.jsonline.com/story/news/politics/2020/08/21/ron-johnson-false-political-narrative-postmaster-general/3406946001/)
 
 [19 Aug 2020: Johnson hopes to end-run House investigation of postal service](https://www.dailykos.com/stories/2020/8/18/1970295/-Johnson-hopes-to-pre-empt-House-efforts-on-Postal-Service-he-might-not-have-thought-that-through?utm_campaign=trending)
