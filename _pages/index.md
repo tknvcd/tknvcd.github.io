@@ -14,7 +14,7 @@ ___
 
 [15 Aug 2020: Sen. Johnson promotes Russian misinformation as Chair of the Homeland Security and Governmental Affairs Comm.](https://twitter.com/SteveSchmidtSES/status/1294786356267417601?cxt=HHwWgoC8lZfVgPgjAAAA)
 
-[14 Aug 2020: On a video interview with OANN, Sen. Johnson claims "incredibly incriminating evidence" about Bidens. OANN is rated by mediabiasfactcheck.com as "Overall, we rate One America News Questionable based on far-right bias, lack of sourcing, promotion of conspiracy theories, and propaganda as well as numerous failed fact checks. OAN is not a credible news source."](https://youtu.be/vzjyF8_KqUM)
+Updated: [14 Aug 2020: On a video interview with OANN, Sen. Johnson claims "incredibly incriminating evidence" about Bidens. OANN is rated by mediabiasfactcheck.com as "Overall, we rate One America News Questionable based on far-right bias, lack of sourcing, promotion of conspiracy theories, and propaganda as well as numerous failed fact checks. OAN is not a credible news source."](https://youtu.be/vzjyF8_KqUM)
 
 [14 Aug 2020: Sen. Johnson's bogus probe aims to help Trump. He told us so himself](https://www.dailykos.com/stories/2020/8/14/1969289/-GOP-Sen-Ron-Johnson-gets-caught-admitting-his-bogus-investigation-will-boost-Trump-s-reelection)
 
