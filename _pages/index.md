@@ -8,6 +8,8 @@ redirect_from:
   - /about.html
 ---
 ___
+[26 Aug 2020: "Performing his usual role as the president’s political valet, Johnson greeted DeJoy at a hearing on August 21 with lavish praise and a nutty conspiracy theory."--Milwaukee Independent](http://www.milwaukeeindependent.com/syndicated/senator-ron-johnson-is-playing-the-fool-on-trumps-behalf-in-order-to-wreck-the-postal-service/)
+
 [24 Aug 2020: Ronjo and Manafort: Scratch my back, I'll scratch yours: Ukrainegate 2.0](https://www.justsecurity.org/72148/manaforts-reward-sen-ron-johnson-and-the-ukraine-conspiracy-investigation-part-ii/)
 
 [22 Aug 2020: Per Ronjo, the idea that PM DeJoy is trashing the postal service six ways from Sunday is a "false political narrative" and a "conspiracy theory"](https://www.jsonline.com/story/news/politics/2020/08/21/ron-johnson-false-political-narrative-postmaster-general/3406946001/)
