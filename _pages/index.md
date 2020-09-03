@@ -25,6 +25,8 @@ _UPDATED_: [14 Aug 2020: On a video interview with OAN, Sen. Johnson claims "inc
 >Mediabiasfactcheck.com on One American News Network (OAN): "Overall, we rate One America News Questionable based on far-right bias, lack of sourcing, promotion of conspiracy theories, and propaganda as well as numerous failed fact checks. OAN is not a credible news source."
 
 
+[14 Aug 2020: Senator RonJo's Committee parroting Russian Misinformation?](https://www.marketwatch.com/story/wisconsin-republican-ron-johnson-on-defensive-over-probe-of-biden-and-ukraine-in-wake-of-intelligence-assessment-on-ongoing-russian-election-interference-2020-08-13)
+
 [14 Aug 2020: Sen. Johnson's bogus probe aims to help Trump. He told us so himself](https://www.dailykos.com/stories/2020/8/14/1969289/-GOP-Sen-Ron-Johnson-gets-caught-admitting-his-bogus-investigation-will-boost-Trump-s-reelection)
 
 [11 Aug 2020: Ron Johnson's investigations of the Bidens has become a conduit of Russian misinformation](https://www.justsecurity.org/71947/how-sen-ron-johnsons-investigation-became-an-enabler-of-russian-disinformation-part-i/)
