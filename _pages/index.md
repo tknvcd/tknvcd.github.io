@@ -8,6 +8,8 @@ redirect_from:
   - /about.html
 ---
 ___
+[4 Sept 2020: Ron Johnson gets 70% of hist campaign funds from large individual contributors, $12.6 million](https://www.opensecrets.org/members-of-congress/summary?cid=N00032546)
+
 [31 Aug 2020: "Republican Ron Johnson refuses to condemn alleged Kenosha shooter"](https://www.salon.com/2020/08/31/republican-ron-johnson-refuses-to-condemn-alleged-kenosha-shooter-when-pressed-by-cnn-host_partner/)
 
 [26 Aug 2020: "Performing his usual role as the president’s political valet, Johnson greeted DeJoy at a hearing on August 21 with lavish praise and a nutty conspiracy theory."--Milwaukee Independent](http://www.milwaukeeindependent.com/syndicated/senator-ron-johnson-is-playing-the-fool-on-trumps-behalf-in-order-to-wreck-the-postal-service/)
