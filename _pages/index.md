@@ -8,7 +8,7 @@ redirect_from:
   - /about.html
 ---
 ___
-[4 Sept 2020: Ron Johnson got $12.6 million, or 70% of his 2015-2020 campaign funds, from large individual contributors](https://www.opensecrets.org/members-of-congress/summary?cid=N00032546)
+[4 Sept 2020: Ron Johnson got $12.6 million, or 70% of his 2015-2020 total campaign funds, from large individual contributors](https://www.opensecrets.org/members-of-congress/summary?cid=N00032546)
 
 [31 Aug 2020: "Republican Ron Johnson refuses to condemn alleged Kenosha shooter"](https://www.salon.com/2020/08/31/republican-ron-johnson-refuses-to-condemn-alleged-kenosha-shooter-when-pressed-by-cnn-host_partner/)
 
