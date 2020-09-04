@@ -39,7 +39,7 @@ _UPDATED_: [14 Aug 2020: On a video interview with OAN, Sen. Johnson claims "inc
 
 [3 Jun 2020: RJ and Authoritarianism](https://www.facebook.com/thomaskeen.nvcd/posts/568788330703623)
 
-[11 Mar 2020: Sen. Johnson's Committee "Staff members for the committee have been working with Mr. Telizhenko for months, interviewing him and collecting documents to bolster two separate investigations into subjects that could help President Trump as he heads into a re-election campaign"](https://www.nytimes.com/2020/03/11/us/politics/senate-subpoena-ron-johnson-ukraine.html)
+[11 Mar 2020: "Staff members for [Sen. Johnson's] committee have been working with Mr. Telizhenko for months, interviewing him and collecting documents to bolster two separate investigations into subjects that could help President Trump as he heads into a re-election campaign"](https://www.nytimes.com/2020/03/11/us/politics/senate-subpoena-ron-johnson-ukraine.html)
 
 [20 Jan 2019: Ron Johnson vote clears way to lift sanctions on Russian oligarch Oleg Deripaska](https://madison.com/wsj/news/local/govt-and-politics/roll-call-key-votes-from-the-wisconsin-congressional-delegation-this-week/article_0dedee09-59a1-59ce-9710-bc99e39594e3.html)
 
