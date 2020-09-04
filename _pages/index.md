@@ -35,7 +35,11 @@ _UPDATED_: [14 Aug 2020: On a video interview with OAN, Sen. Johnson claims "inc
 
 [9 Aug 2020: New Congressional Integrity Report on Ron Johnson's Personal Corruption](http://www.milwaukeeindependent.com/syndicated/new-report-details-how-senator-ron-johnson-betrayed-wisconsin-to-make-millions-in-personal-profit/)
 
+[20 July 2020: RJ give his Senate Homeland Security Committee info from former Ukrainian official, Andrii Telizhenko, a known conduit for russian disinformation](https://www.nytimes.com/2020/07/20/us/politics/congress-disinformation-biden-russia-ukraine.html)
+
 [3 Jun 2020: RJ and Authoritarianism](https://www.facebook.com/thomaskeen.nvcd/posts/568788330703623)
+
+[11 Mar 2020: Andrii Telizhenko cozies up to Trump and Giuliani, spreads Russian disinformation that ends up in front of Ron Johnson's Senate Committee](https://www.nytimes.com/2020/03/11/us/politics/senate-subpoena-ron-johnson-ukraine.html)
 
 [20 Jan 2019: Ron Johnson vote clears way to lift sanctions on Russian oligarch Oleg Deripaska](https://madison.com/wsj/news/local/govt-and-politics/roll-call-key-votes-from-the-wisconsin-congressional-delegation-this-week/article_0dedee09-59a1-59ce-9710-bc99e39594e3.html)
 
