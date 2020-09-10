@@ -1,12 +1,12 @@
 # main links links
 main:
-  - title: Words and Acts
+  - title: "Words and Acts  /"
     url: /index/
     
-  - title: "Blog Posts"
+  - title: "Blog Posts   /"
     url: /year-archive/
 
-  - title: "Ron Johnson's Connection Net"
+  - title: "Ron Johnson's Connection Net.  /"
     url: /socnet/
 
   - title: "Guide"
