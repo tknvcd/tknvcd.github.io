@@ -1,6 +1,6 @@
 # main links links
 main:
-  - title: "Words and Acts  /"
+  - title: "/ Words and Acts  /"
     url: /index.md/
     
   - title: "/ Blog Posts   /"
@@ -9,5 +9,5 @@ main:
   - title: "/ Ron Johnson's Connection Net.  /"
     url: /socnet/
 
-  - title: "/ Guide"
+  - title: "/ Guide /"
     url: /markdown/
