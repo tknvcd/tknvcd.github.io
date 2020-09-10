@@ -1,5 +1,5 @@
 ---
-permalink: /
+permalink: /home/
 title: "Words and Acts of Ron Johnson, WI Junior Senator"
 excerpt: "Overview"
 author_profile: false
