@@ -1,7 +1,7 @@
 # main links links
 main:
   - title: "Words and Acts  /"
-    url: /index/
+    url: /index.md/
     
   - title: "Blog Posts   /"
     url: /year-archive/
