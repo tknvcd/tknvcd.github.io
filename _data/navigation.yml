@@ -1,7 +1,7 @@
 # main links links
 main:
   - title: 
-<button type="button" class="btn btn-link">Home</button>
+<button type="button" class="btn btn-link">Words and Acts</button>
     url: /home/
     
   - title: "/ Blog Posts   /"
