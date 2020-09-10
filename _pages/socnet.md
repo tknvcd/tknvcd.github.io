@@ -7,7 +7,7 @@ redirect_from:
   - /socnet.html
 ---
 
-#### Sources of misinformation picked up by Ron Johnson's Ukrainian Investigation
+### Sources of misinformation picked up by Ron Johnson's Ukrainian Investigation
 ---
 * **Andrii Derkach**
 
