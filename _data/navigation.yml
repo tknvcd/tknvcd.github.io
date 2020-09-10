@@ -1,7 +1,6 @@
 # main links
 main:
-  - title: 
-'<button type="button" class="btn btn-link">Words and Acts</button>'
+  - title: "/ Words and Acts /"
     url: /home/
     
   - title: "/ Blog Posts   /"
