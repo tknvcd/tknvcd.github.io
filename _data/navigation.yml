@@ -3,11 +3,11 @@ main:
   - title: "Words and Acts  /"
     url: /index.md/
     
-  - title: "Blog Posts   /"
+  - title: "/ Blog Posts   /"
     url: /year-archive/
 
-  - title: "Ron Johnson's Connection Net.  /"
+  - title: "/ Ron Johnson's Connection Net.  /"
     url: /socnet/
 
-  - title: "Guide"
+  - title: "/ Guide"
     url: /markdown/
