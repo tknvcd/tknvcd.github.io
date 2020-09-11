@@ -9,7 +9,8 @@ redirect_from:
 
 ### Sources of misinformation picked up by Ron Johnson's Ukrainian investigation
 ---
-* **Oleksandr Onyshchenko**[10 Sep 2020 ]:(https://www.washingtonpost.com/politics/2020/09/10/)
+* **Oleksandr Onyshchenko**
+[10 Sep 2020 ]:(https://www.washingtonpost.com/politics/2020/09/10/)
   
 ---
 * **Andrii Derkach**
