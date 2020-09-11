@@ -11,7 +11,7 @@ redirect_from:
 ---
 * **Oleksandr Onyshchenko**
 
-  [10 Sep 2020: Both Andrii Derkach and Oleksandr Onyshcenko claim to have passed anti-Biden information to Senator Johnson (R-WI)]:(https://www.washingtonpost.com/politics/2020/09/10/trump-team-welcomed-russian-disinformation-trump-administration-further-confirms/)
+  [10 Sep 2020]:(https://www.washingtonpost.com/politics/2020/09/10/trump-team-welcomed-russian-disinformation-trump-administration-further-confirms/)
   
 ---
 * **Andrii Derkach**
