@@ -11,7 +11,7 @@ redirect_from:
 ---
 * **Oleksandr Onyshchenko**
 
-  [10 Sep 2020 ]:(https://www.washingtonpost.com/politics/2020/09/10/)
+[10 Sep 2020 ]:(https://www.washingtonpost.com/politics/2020/09/10/)
   
 ---
 * **Andrii Derkach**
