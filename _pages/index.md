@@ -7,7 +7,8 @@ redirect_from:
   - /about/
   - /about.html
 ---
-___
+[11 Sep 2020: Oleksandr Onyshchenko joins Alexii Derkach on the list of Ukranians claiming to have sent anti-Biden info to Sen. Johnson and Rudy Giuliani](https://www.dailykos.com/stories/2020/9/11/1976719/-Looky-here-Trump-allies-Biden-smears-informed-by-active-Russian-agent-for-over-a-decade)
+
 [4 Sept 2020: Ron Johnson got $12.6 million, or 70% of his 2015-2020 total campaign funds, from large individual contributors](https://www.opensecrets.org/members-of-congress/summary?cid=N00032546)
 
 [31 Aug 2020: "Republican Ron Johnson refuses to condemn alleged Kenosha shooter"](https://www.salon.com/2020/08/31/republican-ron-johnson-refuses-to-condemn-alleged-kenosha-shooter-when-pressed-by-cnn-host_partner/)
