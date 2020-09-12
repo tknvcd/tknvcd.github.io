@@ -7,6 +7,8 @@ redirect_from:
   - /about/
   - /about.html
 ---
+[12 Sep 2020: Johnson's investigation "underwritten with taxpayer dollars— based on a long-debunked, hardcore right-wing conspiracy theory](https://www.washingtonpost.com/national-security/biden-ukraine-senate-investigation/2020/09/11/e969d848-f379-11ea-999c-67ff7bf6a9d2_story.html?hpid=hp_hp-banner-main_bidenprobe-925am%3Ahomepage%2Fstory-ans)
+
 [11 Sep 2020: Oleksandr Onyshchenko joins Alexii Derkach on the list of Ukranians claiming to have sent anti-Biden info to Sen. Johnson and Rudy Giuliani](https://www.dailykos.com/stories/2020/9/11/1976719/-Looky-here-Trump-allies-Biden-smears-informed-by-active-Russian-agent-for-over-a-decade)
 
 [4 Sept 2020: Ron Johnson got $12.6 million, or 70% of his 2015-2020 total campaign funds, from large individual contributors](https://www.opensecrets.org/members-of-congress/summary?cid=N00032546)
