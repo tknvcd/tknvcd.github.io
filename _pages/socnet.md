@@ -7,7 +7,7 @@ redirect_from:
   - /socnet.html
 ---
 
-### Ukrainian sources of misinformation picked up by Ron Johnson's Ukrainian investigation
+### Ukrainian sources of misinformation picked up by Ron Johnson's Biden investigations
 ---
 **Oleksandr Onyshchenko**
 
