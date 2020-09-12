@@ -18,7 +18,7 @@ redirect_from:
 ---
 **Andrii Derkach**
 
-  [10 Sep 2020: Andrii Derkach designated Russian agent, sanctioned for interference in 2020 election](https://home.treasury.gov/news/press-releases/sm1118)
+  [10 Sep 2020: Andrii Derkach, designated Russian agent, sanctioned for interference in 2020 election](https://home.treasury.gov/news/press-releases/sm1118)
  
 ---
 
