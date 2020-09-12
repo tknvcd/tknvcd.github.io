@@ -24,3 +24,5 @@ redirect_from:
 
 **Andrii Telizhenko**
 
+  [12 Sep 2020: Telizhenko "a clearinghouse of sorts, to funnel Kremlin-backed conspiracy theories about the Bidens" to Johnson, Manafort, Grassley](https://www.washingtonpost.com/national-security/biden-ukraine-senate-investigation/2020/09/11/e969d848-f379-11ea-999c-67ff7bf6a9d2_story.html?hpid=hp_hp-banner-main_bidenprobe-925am%3Ahomepage%2Fstory-ans)
+
