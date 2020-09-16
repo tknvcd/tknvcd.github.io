@@ -7,7 +7,7 @@ redirect_from:
   - /about/
   - /about.html
 ---
-[16 Sep 2020: Johnson kills Schumer/Widen resolution proposal for "the cessation of any Senate investigation or activity that allows Congress to act as a conduit for Russian disinformation.”](https://www.marketwatch.com/story/mitt-romney-says-fellow-senate-republican-ron-johnsons-probe-into-biden-son-is-not-a-legitimate-function-of-government-2020-09-16)
+[16 Sep 2020: Johnson kills Schumer/Widen resolution calling for "the cessation of any Senate investigation or activity that allows Congress to act as a conduit for Russian disinformation.”](https://www.marketwatch.com/story/mitt-romney-says-fellow-senate-republican-ron-johnsons-probe-into-biden-son-is-not-a-legitimate-function-of-government-2020-09-16)
 
 [15 Sep 2020: Ronjo will be voted authorization to issue subpoenas in Biden investigation to former FBI Director McCabe and scores of others](https://thehill.com/homenews/senate/515693-senate-panel-to-vote-next-week-on-authorizing-subpoenas-for-biden-obama-era)
 
