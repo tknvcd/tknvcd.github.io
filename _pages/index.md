@@ -7,6 +7,8 @@ redirect_from:
   - /about/
   - /about.html
 ---
+[17 Sep 2020: Digging into the origin story of Sen. RoJo's anti-Biden investigations](https://www.dailykos.com/stories/2020/9/17/1978164/-If-GOP-Sen-Ron-Johnson-isn-t-a-Russian-asset-he-s-certainly-behaving-like-one)
+
 [16 Sep 2020: Johnson kills Schumer/Widen resolution calling for "the cessation of any Senate investigation or activity that allows Congress to act as a conduit for Russian disinformation.”](https://www.marketwatch.com/story/mitt-romney-says-fellow-senate-republican-ron-johnsons-probe-into-biden-son-is-not-a-legitimate-function-of-government-2020-09-16)
 
 [15 Sep 2020: Ronjo will be voted authorization to issue subpoenas in Biden investigation to former FBI Director McCabe and scores of others](https://thehill.com/homenews/senate/515693-senate-panel-to-vote-next-week-on-authorizing-subpoenas-for-biden-obama-era)
