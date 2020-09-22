@@ -7,7 +7,7 @@ redirect_from:
   - /about/
   - /about.html
 ---
-[22 Sep 2020: Sen. Ron: "Let's let voters have a voice in this through their vote for president and for the control of the Senate," Oh, wait, that was 2016](https://www.jsonline.com/story/news/politics/elections/2020/09/19/sen-johnson-argued-2016-high-court-vacancies-should-not-filled-election-year/5838244002/) 
+[22 Sep 2020: Sen. Ron on the loss of RGB: "Let's let voters have a voice in this through their vote for president and for the control of the Senate," Oh, wait, that was 2016](https://www.jsonline.com/story/news/politics/elections/2020/09/19/sen-johnson-argued-2016-high-court-vacancies-should-not-filled-election-year/5838244002/) 
 
 [17 Sep 2020: Digging into the origin story of Sen. RoJo's anti-Biden investigations](https://www.dailykos.com/stories/2020/9/17/1978164/-If-GOP-Sen-Ron-Johnson-isn-t-a-Russian-asset-he-s-certainly-behaving-like-one)
 
