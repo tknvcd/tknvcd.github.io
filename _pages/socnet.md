@@ -18,7 +18,7 @@ redirect_from:
 ---
 **Andrii Derkach**
 
-  [22 Sep 2020: CIA, NSA and FBI believed Putin may be personally directing the campaign. Derkach helps efforts to denigrate Biden](https://www.washingtonpost.com/opinions/2020/09/22/secret-cia-assessment-putin-probably-directing-influence-operation-denigrate-biden/)
+  [22 Sep 2020: CIA, NSA and FBI believed Putin may be personally directing the anti-Biden campaign. Derkach is the prime agent](https://www.washingtonpost.com/opinions/2020/09/22/secret-cia-assessment-putin-probably-directing-influence-operation-denigrate-biden/)
   
   [10 Sep 2020: Andrii Derkach, designated Russian agent, sanctioned for interference in 2020 election](https://home.treasury.gov/news/press-releases/sm1118)
  
