@@ -26,5 +26,7 @@ redirect_from:
 
 **Andrii Telizhenko**
 
+  [23 Sep 2020: Johnson and Grassley have said that they vetted all of Telizhenko’s information through other sources but their final report is a nothing burger](https://www.washingtonpost.com/national-security/senate-gop-report-calls-hunter-bidens-board-position-problematic-but-offers-few-specific-examples-it-changed-obama-administration-policy/2020/09/23/4b66d41e-fd44-11ea-9ceb-061d646d9c67_story.html)
+  
   [12 Sep 2020: Telizhenko "a clearinghouse of sorts, to funnel Kremlin-backed conspiracy theories about the Bidens" to Johnson, Grassley investigators](https://www.washingtonpost.com/national-security/biden-ukraine-senate-investigation/2020/09/11/e969d848-f379-11ea-999c-67ff7bf6a9d2_story.html?hpid=hp_hp-banner-main_bidenprobe-925am%3Ahomepage%2Fstory-ans)
 
