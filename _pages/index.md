@@ -7,7 +7,7 @@ redirect_from:
   - /about/
   - /about.html
 ---
-[23 Sep 2020] Johnson-Grassley Biden Report "little more than a rehashing of unproven allegations that echoed a Russian disinformation campaign"](https://www.nytimes.com/2020/09/23/us/politics/biden-inquiry-republicans-johnson.html)
+[23 Sep 2020: Johnson-Grassley Biden Report "little more than a rehashing of unproven allegations that echoed a Russian disinformation campaign"](https://www.nytimes.com/2020/09/23/us/politics/biden-inquiry-republicans-johnson.html)
 
 [22 Sep 2020: Putin and senior Kremlin leaders involved in "and probably directing" interference in US 2020 presidential election with anti-Biden messaging. Sen. Johnson is fully on board](https://www.washingtonpost.com/opinions/2020/09/22/secret-cia-assessment-putin-probably-directing-influence-operation-denigrate-biden/)
 
