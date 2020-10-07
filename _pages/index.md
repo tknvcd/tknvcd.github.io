@@ -11,6 +11,8 @@ redirect_from:
 
 [03 Oct 2020: After testing positive for COVID-19, Ron Johnson says he's still against mask mandates](https://madison.com/ct/news/local/govt-and-politics/after-testing-positive-for-covid-19-ron-johnson-says-hes-still-against-mask-mandates/article_779c1b9f-e725-55cf-944c-03122be174e7.html#tracking-source=home-top-story)
 
+[23 Sep 2020: The GOP’s own star witness just blew up Trump [and Johnson’s] ‘Hunterghazi’ smear](https://www.washingtonpost.com/opinions/2020/09/23/gops-own-star-witness-just-blew-up-trumps-huntergazi-smear/)
+
 [23 Sep 2020: Johnson-Grassley Biden Report "little more than a rehashing of unproven allegations that echoed a Russian disinformation campaign"](https://www.nytimes.com/2020/09/23/us/politics/biden-inquiry-republicans-johnson.html)
 
 [22 Sep 2020: Putin and senior Kremlin leaders involved in "and probably directing" interference in US 2020 presidential election with anti-Biden messaging. Sen. Johnson is fully on board](https://www.washingtonpost.com/opinions/2020/09/22/secret-cia-assessment-putin-probably-directing-influence-operation-denigrate-biden/)
