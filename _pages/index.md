@@ -7,6 +7,8 @@ redirect_from:
   - /about/
   - /about.html
 ---
+[18 Oct 2020: tRump lackey RonJ goes Q Anon: Claims child porn found on Hunter Biden computer](https://twitter.com/i/status/1317849887438966784)
+
 [03 Oct 2020: Sen RoJo attended GOP fundraiser after testing positive for COVID](https://www.dailykos.com/stories/2020/10/3/1983269/-Sen-Ron-Johnson-attended-GOP-fundraiser-after-testing-positive-for-COVID?utm_campaign=trending)
 
 [03 Oct 2020: After testing positive for COVID-19, Ron Johnson says he's still against mask mandates](https://madison.com/ct/news/local/govt-and-politics/after-testing-positive-for-covid-19-ron-johnson-says-hes-still-against-mask-mandates/article_779c1b9f-e725-55cf-944c-03122be174e7.html#tracking-source=home-top-story)
