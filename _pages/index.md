@@ -7,6 +7,8 @@ redirect_from:
   - /about/
   - /about.html
 ---
+[11 Nov 2020: tRump Barnacle RJohnson Tweet: "My committee has jurisdiction over USPS and the federal workforce. I’m asking anyone who knows of irregularities related to mail-in or absentee ballots to contact our confidential whistleblower hotline: whistleblower@ronjohnson.senate.gov"](https://twitter.com/SenRonJohnson/status/1326712457881153536)
+
 [7 Nov 2020: Ron Johnson the day Biden is declared President Elect: "President Trump has tenaciously fought to make America better"](https://www.nbc15.com/2020/11/07/sen-johnson-president-trump-will-always-be-a-winner/) 
 
 [6 Nov 2020: Sen. Ron Johnson says half of country won't accept a Biden win](https://madison.com/news/state_and_regional/govt-and-politics/sen-ron-johnson-says-half-of-country-wont-accept-a-biden-win/article_edf6fcee-206d-11eb-a922-672cc19ced3a.html)
