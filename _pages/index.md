@@ -7,7 +7,7 @@ redirect_from:
   - /about/
   - /about.html
 ---
-[04 Dec 2020: "Ron Johnson 'knows that Joe Biden won a free and fair election. He is refusing to admit it publicly'"](https://www.dailykos.com/stories/2020/12/2/1999512/-Ron-Johnson-knows-that-Joe-Biden-won-a-free-and-fair-election-He-is-refusing-to-admit-it-publicly)
+[4 Dec 2020: "Ron Johnson 'knows that Joe Biden won a free and fair election. He is refusing to admit it publicly'"](https://www.dailykos.com/stories/2020/12/2/1999512/-Ron-Johnson-knows-that-Joe-Biden-won-a-free-and-fair-election-He-is-refusing-to-admit-it-publicly)
 
 [11 Nov 2020: tRump Barnacle RJohnson Tweet: "My committee has jurisdiction over USPS and the federal workforce. I’m asking anyone who knows of irregularities related to mail-in or absentee ballots to contact our confidential whistleblower hotline: whistleblower@ronjohnson.senate.gov"](https://twitter.com/SenRonJohnson/status/1326712457881153536)
 
