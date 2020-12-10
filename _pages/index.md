@@ -7,6 +7,8 @@ redirect_from:
   - /about/
   - /about.html
 ---
+[10 Dec 2020: Mark Pocan: "@SenRonJohnson's desperate need for Donald Trump's approval is beyond being a sycophant and bordering on being a cult follower or stalker"](https://madison.com/wsj/news/local/govt-and-politics/ron-johnson-called-scum-for-considering-challenge-to-election/article_4868c0db-cff3-51b2-a2fe-4371d77ed79f.html)
+
 [4 Dec 2020: "Ron Johnson 'knows that Joe Biden won a free and fair election. He is refusing to admit it publicly'"](https://www.dailykos.com/stories/2020/12/2/1999512/-Ron-Johnson-knows-that-Joe-Biden-won-a-free-and-fair-election-He-is-refusing-to-admit-it-publicly)
 
 [11 Nov 2020: tRump Barnacle RJohnson Tweet: "My committee has jurisdiction over USPS and the federal workforce. I’m asking anyone who knows of irregularities related to mail-in or absentee ballots to contact our confidential whistleblower hotline: whistleblower@ronjohnson.senate.gov"](https://twitter.com/SenRonJohnson/status/1326712457881153536)
