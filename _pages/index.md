@@ -7,6 +7,8 @@ redirect_from:
   - /about/
   - /about.html
 ---
+[14 Dec 2020: Thread: Links between new post-Barr Deputy Attorney General Richard Donoghue with same Russian disinfo feeders Derkach and Telizhenko, as Sen. RonJohn](https://twitter.com/OlgaNYC1211/status/1338621481123770369)
+
 [14 Dec 2020: "Ron Johnson is chairman of the Senate Homeland Security Committee. He visited Russia and later helped them smear Americans. Today we learned that Russia hacked DHS. Good job, Russian Ron", @adamparkhomenko on Twitter](https://twitter.com/AdamParkhomenko/status/1338580218982838273)
 
 [10 Dec 2020: Mark Pocan: "@SenRonJohnson's desperate need for Donald Trump's approval is beyond being a sycophant and bordering on being a cult follower or stalker"](https://madison.com/wsj/news/local/govt-and-politics/ron-johnson-called-scum-for-considering-challenge-to-election/article_4868c0db-cff3-51b2-a2fe-4371d77ed79f.html)
