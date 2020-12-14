@@ -7,6 +7,8 @@ redirect_from:
   - /about/
   - /about.html
 ---
+[14 Dec 2020: "Ron Johnson is chairman of the Senate Homeland Security Committee. He visited Russia and later helped them smear Americans. Today we learned that Russia hacked DHS. Good job, Russian Ron", @adamparkhomenko on Twitter](https://twitter.com/AdamParkhomenko/status/1338580218982838273)
+
 [10 Dec 2020: Mark Pocan: "@SenRonJohnson's desperate need for Donald Trump's approval is beyond being a sycophant and bordering on being a cult follower or stalker"](https://madison.com/wsj/news/local/govt-and-politics/ron-johnson-called-scum-for-considering-challenge-to-election/article_4868c0db-cff3-51b2-a2fe-4371d77ed79f.html)
 
 [4 Dec 2020: "Ron Johnson 'knows that Joe Biden won a free and fair election. He is refusing to admit it publicly'"](https://www.dailykos.com/stories/2020/12/2/1999512/-Ron-Johnson-knows-that-Joe-Biden-won-a-free-and-fair-election-He-is-refusing-to-admit-it-publicly)
