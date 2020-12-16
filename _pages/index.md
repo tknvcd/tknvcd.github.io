@@ -7,6 +7,8 @@ redirect_from:
   - /about/
   - /about.html
 ---
+[15 Dec 2020: Two weeks before the election, Johnson told business leaders in his state that Joe Biden’s election represented “the greatest threat to our freedom in my lifetime” and described himself as “panicked” about the possibility of a Trump loss](https://www.washingtonpost.com/politics/ron-johnson-trump-election-senate/2020/12/15/8e34c190-3e60-11eb-a402-fba110db3b42_story.html)
+
 [15 Dec 2020: He must be so proud: "Ron Johnson could take his last stand Wednesday as Trump’s most stalwart Senate defender"](https://www.washingtonpost.com/politics/ron-johnson-trump-election-senate/2020/12/15/8e34c190-3e60-11eb-a402-fba110db3b42_story.html)
 
 [14 Dec 2020: Thread: Links tie new post-Barr Deputy Attorney General Richard Donoghue with same Russian disinfo feeders, Derkach and Telizhenko, that fed Sen. RonJohn's Hunter Biden fishing expedition](https://twitter.com/OlgaNYC1211/status/1338621481123770369)
