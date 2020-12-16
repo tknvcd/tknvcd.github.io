@@ -7,6 +7,8 @@ redirect_from:
   - /about/
   - /about.html
 ---
+[15 Dec 2020: He must be so proud: "Ron Johnson could take his last stand Wednesday as Trump’s most stalwart Senate defender"](https://www.washingtonpost.com/politics/ron-johnson-trump-election-senate/2020/12/15/8e34c190-3e60-11eb-a402-fba110db3b42_story.html)
+
 [14 Dec 2020: Thread: Links tie new post-Barr Deputy Attorney General Richard Donoghue with same Russian disinfo feeders, Derkach and Telizhenko, that fed Sen. RonJohn's Hunter Biden fishing expedition](https://twitter.com/OlgaNYC1211/status/1338621481123770369)
 
 [14 Dec 2020: "Ron Johnson is chairman of the Senate Homeland Security Committee. He visited Russia and later helped them smear Americans. Today we learned that Russia hacked DHS. Good job, Russian Ron", @adamparkhomenko on Twitter](https://twitter.com/AdamParkhomenko/status/1338580218982838273)
