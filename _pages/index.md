@@ -7,6 +7,8 @@ redirect_from:
   - /about/
   - /about.html
 ---
+![](../images/rojoUkr.png)
+
 [18 Dec 2020: GOP senator Ron Johnson blocks bill to provide $1,200 stimulus checks http://hill.cm/av54QaR](https://twitter.com/thehill/status/1339985803850764288)
 
 [15 Dec 2020: Two weeks before the election, Johnson told business leaders in his state that Joe Biden’s election represented “the greatest threat to our freedom in my lifetime” and described himself as “panicked” about the possibility of a Trump loss](https://www.washingtonpost.com/politics/ron-johnson-trump-election-senate/2020/12/15/8e34c190-3e60-11eb-a402-fba110db3b42_story.html)
