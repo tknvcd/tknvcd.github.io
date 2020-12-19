@@ -9,6 +9,8 @@ redirect_from:
 ---
 ![](../images/rojoUkr.png)
 
+[18 Dec 2020: Senator Bernie Sanders rips into RoJoh for saying $1200 is too much economic relief]{https://youtu.be/1z_Zc5TueYU)
+
 [18 Dec 2020: While opposing $1200 direct payment relief, RoJo is “concerned” about people's suffering and claims that COVID is an act of God. ](https://twitter.com/RexChapman/status/1340023426921148416)
 
 [18 Dec 2020: GOP senator Ron Johnson blocks bill to provide $1,200 stimulus checks http://hill.cm/av54QaR](https://twitter.com/thehill/status/1339985803850764288)
