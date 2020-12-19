@@ -9,6 +9,8 @@ redirect_from:
 ---
 ![](../images/rojoUkr.png)
 
+[19 Dec 2020: Sen. Josh Hawley (R-Mo.) on Friday went on the Senate floor to push legislation that would provide for $1,200 checks — double what is currently under consideration. Yet, Sen. Ron Johnson (R-Wis.), argued that sending more direct aid to Americans would be a fiscally irresponsible “shotgun approach.”](https://www.washingtonpost.com/us-policy/2020/12/18/government-funding-likely-expire-friday-night-congress-tries-complete-stimulus-deal/)
+
 [18 Dec 2020: (Video) Senator Bernie Sanders rips into RoJoh for saying $1200 is too much economic relief](https://youtu.be/1z_Zc5TueYU)
 
 [18 Dec 2020: While opposing $1200 direct payment relief, RoJo is “concerned” about people's suffering and claims that COVID is an act of God. ](https://twitter.com/RexChapman/status/1340023426921148416)
