@@ -9,6 +9,8 @@ redirect_from:
 ---
 ![](../images/rojoUkr.png)
 
+[30 Dec 2020: WI newspaper hands RoJo his walking papers: "Plain Talk: If anything, 2020 showed we need to get Ron Johnson out of the Senate"](https://madison.com/ct/news/opinion/column/dave_zweifel/plain-talk-if-anything-2020-showed-we-need-to-get-ron-johnson-out-of-the/article_2bea2f6c-449a-11eb-80fd-2f8602d43083.html)
+
 [28 Dec 2020: RoJo grateful for WashTimes coverage of Hunter Biden as the exception to general 'media suppression'](https://twitter.com/SenRonJohnson/status/1343645142650126336)
 
 [19 Dec 2020: Sen. Josh Hawley (R-Mo.) on Friday went on the Senate floor to push legislation that would provide for $1,200 checks — double what is currently under consideration. Yet, Sen. Ron Johnson (R-Wis.), argued that sending more direct aid to Americans would be a fiscally irresponsible “shotgun approach.”](https://www.washingtonpost.com/us-policy/2020/12/18/government-funding-likely-expire-friday-night-congress-tries-complete-stimulus-deal/)
