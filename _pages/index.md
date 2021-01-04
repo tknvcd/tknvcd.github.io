@@ -104,6 +104,6 @@ _UPDATED_: [14 Aug 2020: On a video interview with OAN, Sen. Johnson claims "inc
 
 [20 Jan 2019: Ron Johnson vote clears way to lift sanctions on Russian oligarch Oleg Deripaska](https://madison.com/wsj/news/local/govt-and-politics/roll-call-key-votes-from-the-wisconsin-congressional-delegation-this-week/article_0dedee09-59a1-59ce-9710-bc99e39594e3.html)
 
-[16 Jan 2019: Moscow Mitch lobbies hard to lift sanctions on one of Putin's favorite oligarchs, Oleg Deripaska. RonJo salutes and votes. Schumer's cpmment: "Gives Vladimir Putin exactly what he wants"](https://www.dailykos.com/stories/2020/12/30/2004140/-Why-is-McConnell-Getting-Away-with-the-Deripaska-Scandal?pm_source=story_sidebar&pm_medium=web&pm_campaign=recommended)
+[16 Jan 2019: Moscow Mitch lobbies hard to lift sanctions on one of Putin's favorite oligarchs, Oleg Deripaska. RonJo salutes and votes. Schumer's comment: "Gives Vladimir Putin exactly what he wants"](https://www.dailykos.com/stories/2020/12/30/2004140/-Why-is-McConnell-Getting-Away-with-the-Deripaska-Scandal?pm_source=story_sidebar&pm_medium=web&pm_campaign=recommended)
 
 [4 July 2018: Johnson one of eight Republican legislators spending the 4th of July in Moscow](https://www.washingtonpost.com/opinions/eight-republicans-spent-july-4-in-russia-where-are-the-fireworks/2018/07/06/beae30be-812e-11e8-b658-4f4d2a1aeef1_story.html)
