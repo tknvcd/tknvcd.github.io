@@ -9,6 +9,8 @@ redirect_from:
 ---
 ![](../images/rojoUkr.png)
 
+[3 Jan 2021: @RonJohnsonWI from @SteveSchmidtSES Twitter thread: "I wanted to let you know what we are talking about at @ProjectLincoln tonight. The campaign against you will be the one you earned with your betrayal and sedition.  When we are done you will be an American villain who exceeds even the wretched McCarthy in ignominy"](https://twitter.com/SteveSchmidtSES/status/1345906690902908931)
+
 [30 Dec 2020: WI newspaper hands RoJo his walking papers: "Plain Talk: If anything, 2020 showed we need to get Ron Johnson out of the Senate"](https://madison.com/ct/news/opinion/column/dave_zweifel/plain-talk-if-anything-2020-showed-we-need-to-get-ron-johnson-out-of-the/article_2bea2f6c-449a-11eb-80fd-2f8602d43083.html)
 
 [28 Dec 2020: RoJo grateful for WashTimes coverage of Hunter Biden as the exception to general 'media suppression'](https://twitter.com/SenRonJohnson/status/1343645142650126336)
