@@ -11,7 +11,7 @@ redirect_from:
 
 [8 Jan 2021: Breaking: Wisconsin's biggest paper urges traitor Ron Johnson's expulsion from the Senate](https://www.dailykos.com/stories/2021/1/8/2007139/-Breaking-Wisconsin-s-biggest-paper-urges-traitor-Ron-Johnson-s-expulsion-from-the-Senate)
 
-[7 Jan 2021: It’s clear: Ron Johnson aided and abetted yesterday’s insurrection. He must resign immediately](https://twitter.com/NelsonforWI?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1347228398469476353%7Ctwgr%5E%7Ctwcon%5Es1_&ref_url=https%3A%2F%2Fwww.dailykos.com%2Fstory%2F2021%2F1%2F8%2F2007139%2F-Breaking-Wisconsin-s-biggest-paper-urges-traitor-Ron-Johnson-s-expulsion-from-the-Senate)
+[7 Jan 2021: It’s clear: Ron Johnson aided and abetted yesterday’s insurrection. He must resign immediately](https://twitter.com/NelsonforWI/status/1347228398469476353)
 
 [6 Jan 2021: Final Reckoning: The 50 Most Disgraceful People of the Trump Administration by David Halperin: RonJon is declared a runner-up for 6th place, nudged out by Lindsey Graham](https://www.republicreport.org/2020/final-reckoning-the-50-most-disgraceful-people-of-the-trump-administration/)
 
