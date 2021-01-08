@@ -9,7 +9,7 @@ redirect_from:
 ---
 ![](../images/rojoUkr.png)
 
-[8 Jan 2021:[Breaking: Wisconsin's biggest paper urges traitor Ron Johnson's expulsion from the Senate](https://www.dailykos.com/stories/2021/1/8/2007139/-Breaking-Wisconsin-s-biggest-paper-urges-traitor-Ron-Johnson-s-expulsion-from-the-Senate)
+[8 Jan 2021: Breaking: Wisconsin's biggest paper urges traitor Ron Johnson's expulsion from the Senate](https://www.dailykos.com/stories/2021/1/8/2007139/-Breaking-Wisconsin-s-biggest-paper-urges-traitor-Ron-Johnson-s-expulsion-from-the-Senate)
 
 [6 Jan 2021: Final Reckoning: The 50 Most Disgraceful People of the Trump Administration by David Halperin: RonJon is declared a runner-up for 6th place, nudged out by Lindsey Graham](https://www.republicreport.org/2020/final-reckoning-the-50-most-disgraceful-people-of-the-trump-administration/)
 
