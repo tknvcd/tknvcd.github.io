@@ -9,7 +9,11 @@ redirect_from:
 ---
 ![](../images/rojoUkr.png)
 
+
+
 [8 Jan 2021: Breaking: Wisconsin's biggest paper urges traitor Ron Johnson's expulsion from the Senate](https://www.dailykos.com/stories/2021/1/8/2007139/-Breaking-Wisconsin-s-biggest-paper-urges-traitor-Ron-Johnson-s-expulsion-from-the-Senate)
+
+[7 Jan 2021: Milwaukee Journal Sentinel Editorial: "Ron Johnson, Scott Fitzgerald and Tom Tiffany should resign or be expelled for siding with Trump against our republic "](https://www.jsonline.com/story/news/solutions/2021/01/07/ron-johnson-scott-fitzgerald-tom-tiffany-must-resign-expelled/6585447002/)
 
 [7 Jan 2021: It’s clear: Ron Johnson aided and abetted yesterday’s insurrection. He must resign immediately](https://twitter.com/NelsonforWI/status/1347228398469476353)
 
