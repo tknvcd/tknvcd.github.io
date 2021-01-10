@@ -13,7 +13,7 @@ redirect_from:
 
 [7 Jan 2021: It’s clear: Ron Johnson aided and abetted yesterday’s insurrection. He must resign immediately](https://twitter.com/NelsonforWI/status/1347228398469476353)
 
-[6 Jan 2021: 'senator' Ron Johnson insists neither he nor tRump have no responsibility for the Jan. 6 insurrection](https://www.facebook.com/sam.wunderle/posts/10217288871806610)
+[6 Jan 2021: 'senator' Ron Johnson insists neither he nor tRump have any responsibility for the Jan. 6 insurrection](https://www.facebook.com/sam.wunderle/posts/10217288871806610)
 
 [6 Jan 2021: Final Reckoning: The 50 Most Disgraceful People of the Trump Administration by David Halperin: RonJon is declared a runner-up for 6th place, nudged out by Lindsey Graham](https://www.republicreport.org/2020/final-reckoning-the-50-most-disgraceful-people-of-the-trump-administration/)
 
