@@ -9,7 +9,7 @@ redirect_from:
 ---
 ![](../images/rojoUkr.png)
 
-[11 Jan 2021: All RoJo's Russian/Ukranian communicants, including Derkach, Deripaska, and Onyshchenko hit with US Treasury Department sanctions](https://twitter.com/OlgaNYC1211/status/1348664740436795393) See
+[11 Jan 2021: All RoJo's Russian/Ukranian communicants, including Derkach, Deripaska, and Onyshchenko hit with US Treasury Department sanctions](https://twitter.com/OlgaNYC1211/status/1348664740436795393) See ["Ron Johnson's Connections"](socnet.md)
 
 [7 Jan 2021: Milwaukee Journal Sentinel Editorial: "Ron Johnson, Scott Fitzgerald and Tom Tiffany should resign or be expelled for siding with Trump against our republic"](https://www.jsonline.com/story/news/solutions/2021/01/07/ron-johnson-scott-fitzgerald-tom-tiffany-must-resign-expelled/6585447002/)
 
