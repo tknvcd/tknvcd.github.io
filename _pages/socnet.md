@@ -11,10 +11,8 @@ redirect_from:
 ---
 **Oleksandr Onyshchenko**
 
-  [10 Sep 2020: Andrii Derkach and Oleksandr Onyshcenko have both claimed to share anti-Biden info with Sen. Johnson](https://www.washingtonpost.com/politics/2020/09/10/trump-team-welcomed-russian-disinformation-trump-administration-further-confirms/)
+  [10 Sep 2020: Andrii Derkach and Oleksandr Onyshcenko have both claimed to share anti-Biden info with Sen. Johnson](https://www.justsecurity.org/71947/how-sen-ron-johnsons-investigation-became-an-enabler-of-russian-disinformation-part-i/)
  
-
-
 ---
 **Andrii Derkach**
 
