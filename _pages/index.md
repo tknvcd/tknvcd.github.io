@@ -7,9 +7,9 @@ redirect_from:
   - /about/
   - /about.html
 ---
-![](../images/rojoUkr.png): Opportunities for WI to ditch RoJo](https://twitter.com/theProgEqualist/status/1348767650328031236)
+![](../images/rojoUkr.png)
 
-[11 Jan 2021
+[11 Jan 2021: Opportunities for WI to ditch RoJo](https://twitter.com/theProgEqualist/status/1348767650328031236)
 
 [11 Jan 2021: RonJo must resign](https://www.facebook.com/socialsecurityworks/photos/a.155910007766200/4035823449774817/)
 
