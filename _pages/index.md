@@ -9,6 +9,8 @@ redirect_from:
 ---
 ![](../images/rojoUkr.png)
 
+[12 Jan 2021: More support for RonJo's resignation or expulsion](https://crooksandliars.com/2021/01/ron-johnson-unfit-office?utm_source=social&utm_medium=facebook&utm_content=40795)
+
 [12 Jan 2021: Cori Bush's Bill would investigate and expel "Senator" RonJo](https://www.facebook.com/socialsecurityworks/photos/a.155910007766200/4035823449774817/)
 
 [11 Jan 2021: RoJo: Me & tRump bear no responsibility for the violence during the January 6 Insurrection](https://www.facebook.com/photo?fbid=10217288866966489&set=a.2233424647913)
