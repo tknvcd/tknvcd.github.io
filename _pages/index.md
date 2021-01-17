@@ -9,6 +9,8 @@ redirect_from:
 ---
 ![](../images/rojoUkr.png)
 
+[17 Jan 2021: RoJo's terrible awful no-good week is coming: Targeted ads drawing attention to his role in initiating and promoting lies about the election](https://www.dailykos.com/stories/2021/1/14/2009239/-The-first-political-ads-of-the-next-cycle-are-already-here-and-Republicans-aren-t-happy)
+
 [17 Jan 2021: Thomas Nelson to Ron Johnson; “Someone needs to go to Washington to do the work you’re supposed to do”. That “someone” will be Thomas Nelson @NelsonforWI](https://twitter.com/eileenvan55/status/1350060755463368706)
 
 [12 Jan 2021: More evidence in support of RonJo's resignation or expulsion](https://crooksandliars.com/2021/01/ron-johnson-unfit-office?utm_source=social&utm_medium=facebook&utm_content=40795)
