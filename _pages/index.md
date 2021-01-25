@@ -9,6 +9,8 @@ redirect_from:
 ---
 ![](../images/rojoUkr.png)
 
+[24 Jan 2021: Senator Ron Johnson Tells Joe Biden To Choose Trump's Impeachment Trial or His Cabinet](https://www.newsweek.com/senator-ron-johnson-tells-joe-biden-choose-trump-impeachment-trial-cabinet-1563596)
+
 [20 Jan 2021: Senator Ron Johnson calls editorial about him 'unhinged and uninformed.' The Editorial Board responds](https://www.jsonline.com/in-depth/news/solutions/2021/01/19/sen-ron-johnson-calls-editorial-unhinged-editorial-board-responds/4204754001/)
 
 [17 Jan 2021: RoJo's terrible awful no-good week is coming: Targeted ads drawing attention to his role in initiating and promoting lies about the election](https://www.dailykos.com/stories/2021/1/14/2009239/-The-first-political-ads-of-the-next-cycle-are-already-here-and-Republicans-aren-t-happy)
