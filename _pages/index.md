@@ -9,6 +9,8 @@ redirect_from:
 ---
 ![](../images/rojoUkr.png)
 
+[31 Jan 2021: Ron Johnson is THE most vulnerable GOP Senator up in 2022. After the insurrection, 60% of Wisconsinites said he should be replaced](https://twitter.com/benwikler/status/1355919814825570306)
+
 [24 Jan 2021: Senator Ron Johnson Tells Joe Biden To Choose Trump's Impeachment Trial or His Cabinet](https://www.newsweek.com/senator-ron-johnson-tells-joe-biden-choose-trump-impeachment-trial-cabinet-1563596)
 
 [20 Jan 2021: Senator Ron Johnson calls editorial about him 'unhinged and uninformed.' The Editorial Board responds](https://www.jsonline.com/in-depth/news/solutions/2021/01/19/sen-ron-johnson-calls-editorial-unhinged-editorial-board-responds/4204754001/)
