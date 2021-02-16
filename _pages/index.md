@@ -9,6 +9,8 @@ redirect_from:
 ---
 ![](../images/rojoUkr.png)
 
+[15 Feb 2021: Senator Ron: Capitol riot 'didn’t seem like an armed insurrection to me'](https://www.dailykos.com/stories/2021/2/15/2016266/-Sen-Ron-Johnson-Capitol-riot-didn-t-seem-like-an-armed-insurrection-to-me)
+
 [31 Jan 2021; "In December, [RoJo] voted against the coronavirus relief plan—just one of six Senators to do so"](https://twitter.com/benwikler/status/1355920744333643778)
 
 [31 Jan 2021: Ron Johnson is THE most vulnerable GOP Senator up in 2022. After the insurrection, 60% of Wisconsinites said he should be replaced](https://twitter.com/benwikler/status/1355919814825570306)
