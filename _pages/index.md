@@ -9,7 +9,7 @@ redirect_from:
 ---
 ![](../images/rojoUkr.png)
 
-[25 Feb 21: A lighter look at the Senator's children's crusade to 'cancel' the Jan. 6 insurrection](https://madison.com/wsj/opinion/cartoon/hands-on-wisconsin-fake-trump-supporters-star-in-ron-johnsons-latest-conspiracy-theory/article_4f8a41c4-b196-5a33-9cd9-dfe8ee9ad641.html)
+[25 Feb 21: A lighter look at the Senator's crusade to 'cancel' the Jan. 6 insurrection](https://madison.com/wsj/opinion/cartoon/hands-on-wisconsin-fake-trump-supporters-star-in-ron-johnsons-latest-conspiracy-theory/article_4f8a41c4-b196-5a33-9cd9-dfe8ee9ad641.html)
 
 [25 Feb 21: Of COURSE RoJo gets his talking points from an anti-muslim hate group](https://twitter.com/Hatewatch/status/1364377745581625349)
 
