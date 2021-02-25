@@ -9,6 +9,8 @@ redirect_from:
 ---
 ![](../images/rojoUkr.png)
 
+[24 Feb 21: RonJo peddles bogus claims that the Capitol Insurrection wasn't an insurrection, and besides it was anti-Trump provocateurs, not white supremacists that committed the violent acts](https://www.washingtonpost.com/politics/2021/02/23/ron-johnson-goes-way-out-limb-absolve-trump-supporters-capitol-riot/ and https://www.splcenter.org/fighting-hate/extremist-files/group/center-security-policy)
+
 [15 Feb 2021: Senator Ron: Capitol riot 'didn’t seem like an armed insurrection to me'](https://www.dailykos.com/stories/2021/2/15/2016266/-Sen-Ron-Johnson-Capitol-riot-didn-t-seem-like-an-armed-insurrection-to-me)
 
 [31 Jan 2021; "In December, [RoJo] voted against the coronavirus relief plan—just one of six Senators to do so"](https://twitter.com/benwikler/status/1355920744333643778)
