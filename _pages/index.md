@@ -9,7 +9,7 @@ redirect_from:
 ---
 ![](../images/rojoUkr.png)
 
-[24 Feb 21: RonJo peddles bogus claims that the Capitol Insurrection was anti-Trump provocateurs, not white supremacists who committed the violent acts](https://www.washingtonpost.com/politics/2021/02/23/ron-johnson-goes-way-out-limb-absolve-trump-supporters-capitol-riot/)
+[24 Feb 21: RonJo peddles bogus claims that the Capitol Insurrection violence was the work of anti-Trump provocateurs, not white supremacists](https://www.washingtonpost.com/politics/2021/02/23/ron-johnson-goes-way-out-limb-absolve-trump-supporters-capitol-riot/)
 
 [15 Feb 2021: Senator Ron--Capitol riot "didn’t seem like an armed insurrection to me"](https://www.dailykos.com/stories/2021/2/15/2016266/-Sen-Ron-Johnson-Capitol-riot-didn-t-seem-like-an-armed-insurrection-to-me)
 
