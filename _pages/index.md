@@ -9,9 +9,9 @@ redirect_from:
 ---
 ![](../images/rojoUkr.png)
 
-[13 Mar 21: Ron (R, москва): Yes, he said it out loud, cinching his reputation as king clown of cluelessness](https://twitter.com/kerkman_terry/status/1370723035741818890)
+[13 Mar 21: RacistRon shows who he is. Believe him](https://twitter.com/kerkman_terry/status/1370723035741818890)
 
-[13 Mar 21: RacistRon shows who he is. Believe him](https://twitter.com/OlgaNYC1211/status/1370561538122260480)
+[13 Mar 21: Ron (R, москва): Yes, he said it out loud, cinching his reputation as king clown of cluelessness](https://twitter.com/OlgaNYC1211/status/1370561538122260480)
 
 [25 Feb 21: A lighter look at the Senator's crusade to 'cancel' the Jan. 6 insurrection](https://madison.com/wsj/opinion/cartoon/hands-on-wisconsin-fake-trump-supporters-star-in-ron-johnsons-latest-conspiracy-theory/article_4f8a41c4-b196-5a33-9cd9-dfe8ee9ad641.html)
 
