@@ -9,7 +9,7 @@ redirect_from:
 ---
 ![](../images/rojoUkr.png)
 
-[13 Mar 21: RacistRon shows who he is. Believe him](https://twitter.com/kerkman_terry/status/1370723035741818890)
+[13 Mar 21: RacistRon shows who he is. Believe him.](https://twitter.com/kerkman_terry/status/1370723035741818890)
 
 [13 Mar 21: Ron (R, москва): Yes, he said it out loud, cinching his reputation as king clown of cluelessness](https://twitter.com/OlgaNYC1211/status/1370561538122260480)
 
