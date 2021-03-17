@@ -9,6 +9,8 @@ redirect_from:
 ---
 ![](../images/rojoUkr.png)
 
+[17 Mar 21: Senator Menendez on RoJo's words: "Everyone in this body should know that when you perpetuate such racist tropes, you contribute to a culture that gives people permission to treat Black Americans as suspicious and their lives as expendable](https://www.washingtonpost.com/opinions/2021/03/17/menendez-ron-johnsons-comments-were-racist/)
+
 [13 Mar 21: RacistRon shows who he is. Believe him.](https://twitter.com/kerkman_terry/status/1370723035741818890)
 
 [13 Mar 21: Ron (R, москва): Yes, he said it out loud, cinching his reputation as king clown of cluelessness](https://twitter.com/OlgaNYC1211/status/1370561538122260480)
