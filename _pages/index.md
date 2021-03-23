@@ -9,6 +9,8 @@ redirect_from:
 ---
 ![](../images/rojoUkr.png)
 
+[23 Mar 21: NY Times: "Assaulting the truth Ron Johnnson helps erode confidence in government"](https://www.nytimes.com/2021/03/21/us/politics/ron-johnson-wisconsin-misinformation.html?searchResultPosition=1)
+
 [17 Mar 21: Senator Menendez on RoJo's words: "Everyone in this body should know that when you perpetuate such racist tropes, you contribute to a culture that gives people permission to treat Black Americans as suspicious and their lives as expendable](https://www.washingtonpost.com/opinions/2021/03/17/menendez-ron-johnsons-comments-were-racist/)
 
 [13 Mar 21: RacistRon shows who he is. Believe him.](https://twitter.com/kerkman_terry/status/1370723035741818890)
